@@ -1,3 +1,2 @@
-## Hi there 👋
-
+## Hi I'm Karina Sosa! 
 
